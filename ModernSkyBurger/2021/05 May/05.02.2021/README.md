@@ -1,7 +1,7 @@
   
 ***
 
-# May 1st 2021 - Didn't play
+# May 2nd 2021 - Didn't play
 
 I didn't play Modern Sky Burger today. I took a break from it, as I am now on a schedule to play this game weekly. However, I still miss the classic version.
 
